@@ -1,0 +1,1 @@
+# UTS_Kecerdasan_Buatan_Kelompok_10_Teknik_Elektro
